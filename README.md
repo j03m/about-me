@@ -1,4 +1,3 @@
-Of course! My apologies for misunderstanding your request. Here's your corrected resume with only grammar and spelling fixed:
 
 # Joe Mordetsky
 
